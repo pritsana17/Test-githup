@@ -1,1 +1,3 @@
 # Test-githup
+I would like to express my interest in I&I Group Public Company and the available Back-end and Front-end position described on your agency's web site.
+	I hold a Bachelor’s degree in Computer Science of Udon Thani Rajabhat University. while studying I have been working on a project involving building a web application. and do the back-end management and designed in the front part I am therefore interested in applying for the position that you have opened for applications. Because I am an energetic, responsible, analytical and honest person, I am confident that I would be a qualified candidate to work for your company.
